@@ -1,0 +1,1 @@
+All pictures stored here are only for personal use to be referenced by my personal [Home](https://homebrewery.naturalcrit.com/)https://homebrewery.naturalcrit.com/ pages. I do not own the rights to the pictures.
